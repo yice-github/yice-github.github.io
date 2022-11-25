@@ -1,1 +1,1 @@
-# yice-github..github.io
+# Welcome to my hugoblog
